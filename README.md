@@ -1,4 +1,4 @@
-# gr3yknigh1
+# Hi hi there! 
 
-Hello! This is my `github` profile!
+This is my `github` profile ^_^
 
